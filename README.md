@@ -1,4 +1,4 @@
-<b>Name: </b>Mary Mae Magdalene A. Gregore
+<b>Name: </b>mmmag
 
 <b>Year Level: </b>5th Year
 
